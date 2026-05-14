@@ -1,4 +1,4 @@
-#  
+#  escape tsunami for brainrots Script custom is the best escape tsunami for brainrots Script, featuring custom skins and private server access. Safe
 
 
 
